@@ -1,1 +1,1 @@
-# L-U-C-I-D
+# LUCID
